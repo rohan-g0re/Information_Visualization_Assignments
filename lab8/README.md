@@ -1,0 +1,1 @@
+# [LINK OF ARTICLE USED AS AN INSPIRATION FOR THE DESIGN!](https://www.adamfishercox.com/writing/countdown-clocks-for-the-mta/)
